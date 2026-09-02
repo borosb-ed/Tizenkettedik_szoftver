@@ -1,0 +1,1 @@
+# Tizenkettedik_szoftver
